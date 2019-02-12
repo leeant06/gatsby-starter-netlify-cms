@@ -7,7 +7,7 @@ description: >
   sinh thái, giúp bảo vệ môi trường hiệu quả nhất trên thế giới – đó là xe đạp
   làm từ giấy, nhựa và các đồ tái chế.
 tags:
-  - ''
+  - 'https://suckhoedoisong.vn/doc-dao-xe-dap-lam-tu-do-tai-che-n129830.html'
 ---
 Công nghệ thân thiện với môi trường đang ngày càng trở nên phổ biến trên khắp thế giới và được người tiêu dùng rất yêu thích và lựa chọn. Nhất là trong bối cảnh biến đổi khí hậu, ô nhiễm môi trường đang là vấn đề báo động của tất cả các quốc gia.
 
