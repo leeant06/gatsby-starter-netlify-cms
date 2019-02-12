@@ -7,6 +7,9 @@ description: >
   nên tiện nghi hơn. Tuy vậy, do rất khó phân hủy, ống hút nhựa lưu lại trong
   môi trường đất, nước,... hàng trăm năm và bóp chết cuộc sống của nhiều sinh
   vật.
+tags:
+  - >-
+    http://kenh14.vn/chi-trong-130-nam-nhung-chiec-ong-hut-dung-mot-lan-da-ra-doi-va-xam-lan-trai-dat-nhu-the-nao-20180717222546053.chn
 ---
 ![](/img/photo-1-1531839494402573996659.jpg)
 
@@ -22,7 +25,7 @@ Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đờ
 
 ![Quảng cáo trên báo cho ống hút giấy của Stone](/img/photo-1-15318394995241097966574.jpg)
 
-Quảng cáo trên báo cho ống hút giấy của Stone
+_Quảng cáo trên báo cho ống hút giấy của Stone_
 
 Từ đó, suốt mấy ngàn năm, nhân loại đã biết sử dụng nhiều loại ống khác nhau để hút chất lỏng. Nhưng mãi đến cuối thế kỉ 19, một sản phẩm ống hút đại trà mới ra đời.
 
@@ -56,7 +59,7 @@ Sản phẩm nhựa ngày nay quá đỗi phổ biến, vậy nên nhiều ngư�
 
 ![](/img/6-15318404015151873727072.jpg)
 
-Những món đồ nhựa đầu tiên do John Wesley Hyatt sáng chế vào 1870
+_Những món đồ nhựa đầu tiên do John Wesley Hyatt sáng chế vào 1870_
 
 Vài thập kỉ sau, những chất nhựa khác bắt đầu được sử dụng như: nhựa tổng hợp bakelit cho đồ gia dụng, nilon để làm bao đựng, acrylic được dùng cho máy bay quân sự...
 
@@ -106,24 +109,24 @@ Thế nhưng, vì sao ống hút nhựa vẫn được sản xuất rộng khắ
 
 Một quản lí của công ty sản xuất ống hút giấy Aardvark Straws cho biết: "Ống hút giấy sẽ tốn kém hơn ống hút nhựa 1 cent để sản xuất (khoảng 230 VNĐ). Với những tập đoàn lớn, sản xuất hàng loạt, điều đó có nghĩa là mất đi hàng trăm triệu đô la. Tuy nhiên, nếu cứ bất chấp thì cái giá phải trả cho môi trường sẽ còn kinh khủng hơn thế".
 
-**_Những cột mốc liên quan đến ống hút nhựa_**
+_**Những cột mốc liên quan đến ống hút nhựa**_
 
-**_1870 – Sản phẩm nhựa ra đời_**
+_**1870 – Sản phẩm nhựa ra đời**_
 
-**_1888 - Ống hút giấy ra đời, chưa thể uốn cong_**
+_**1888 - Ống hút giấy ra đời, chưa thể uốn cong**_
 
-**_1930 - Ống hút giấy đã có thể uốn cong, giúp ích cho các bệnh nhân_**
+_**1930 - Ống hút giấy đã có thể uốn cong, giúp ích cho các bệnh nhân**_
 
-**_Từ sau 1945 – Nền công nghiệp nhựa gia dụng giá rẻ bùng nổ. Ống hút nhựa ra đời_**
+_**Từ sau 1945 – Nền công nghiệp nhựa gia dụng giá rẻ bùng nổ. Ống hút nhựa ra đời**_
 
-**_1950 – Thế giới sản xuất 1,5 triệu tấn nhựa_**
+_**1950 – Thế giới sản xuất 1,5 triệu tấn nhựa**_
 
-**_2015 – Thế giới sản xuất 322 triệu tấn nhựa_**
+_**2015 – Thế giới sản xuất 322 triệu tấn nhựa**_
 
-**_2018 – Cuộc chiến rác thải nhựa vẫn còn tiếp tục_**
+_**2018 – Cuộc chiến rác thải nhựa vẫn còn tiếp tục**_
 
-**_2050 – Dự đoán trọng lượng nhựa sẽ nặng hơn tổng trọng lượng cá trên đại dương_**
+_**2050 – Dự đoán trọng lượng nhựa sẽ nặng hơn tổng trọng lượng cá trên đại dương**_
 
-**_Không ai ngờ, một vật dụng nhỏ bé lại trở nên phổ biến quá nhanh, và để lại hậu quả dai dẳng cho môi trường đến thế!_**
+_**Không ai ngờ, một vật dụng nhỏ bé lại trở nên phổ biến quá nhanh, và để lại hậu quả dai dẳng cho môi trường đến thế!**_
 
 Nguồn: National Geographic
