@@ -22,6 +22,8 @@ Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đờ
 
 ![Quảng cáo trên báo cho ống hút giấy của Stone](/img/photo-1-15318394995241097966574.jpg)
 
+Quảng cáo trên báo cho ống hút giấy của Stone
+
 Từ đó, suốt mấy ngàn năm, nhân loại đã biết sử dụng nhiều loại ống khác nhau để hút chất lỏng. Nhưng mãi đến cuối thế kỉ 19, một sản phẩm ống hút đại trà mới ra đời.
 
 Vào năm 1888 (cách đây đúng 130 năm), ông Marvin Stone, người Mỹ, được cấp bằng sáng chế cho chiếc ống hút giấy.
@@ -34,11 +36,15 @@ Nhưng điều quan trọng là xuất thân của ông Stone. Vốn là nhà s�
 
 Đến những năm 1930, nhà phát minh Joseph Friedman nhìn thấy con gái mình "vật lộn" với chiếc ống hút giấy thẳng đơ khi uống cạn ly sữa. Từ đó, Joseph đã sáng tạo ra phần "nhún" trên chiếc ống hút để nó có thể bẻ cong.
 
-Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất - Ảnh 3.
+Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất
 
 Đến thập niên 30, ống hút giấy mới có thể uốn cong, giúp ích cho các bệnh nhân
 
 Joseph sau đó đăng ký bằng sáng chế, thành lập công ty Flex-Straw nhằm nhân rộng sản phẩm mới. Họ đã quảng cáo nó như "chiếc ống hút cá nhân cho mỗi người".
+
+![](/img/photo-2-1531839499527230704663.jpg)
+
+_Đến thập niên 30, ống hút giấy mới có thể uốn cong, giúp ích cho các bệnh nhân_
 
 Nhiều bệnh viện cũng ủng hộ ý tưởng mới, giúp người bệnh có thể nằm mà vẫn uống nước được. Cả nước Mỹ bắt đầu hưởng ứng việc dùng ống hút "cong" khi thưởng thức các ly soda, sữa khuấy ngon lành! Tuy nhiên, không ai ngờ rằng...
 
@@ -46,9 +52,9 @@ Vào thời điểm đó, nền công nghiệp sản xuất nhựa cũng bùng n
 
 Sản phẩm nhựa ngày nay quá đỗi phổ biến, vậy nên nhiều người tưởng nó đã ra đời từ lâu lắm rồi. Nhưng không, chỉ đến năm 1870, nhà sáng chế người Mỹ - ông John Wesley Hyatt, mới tạo ra những sản phẩm nhựa đầu tiên bằng chất xenluloit (dùng để bắt chước nguyên liệu ngà động vật).
 
-Chỉ trong 130 năm, những chiếc ống h&#250;t d&#249;ng một lần đ&#227; ra đời v&#224; x&#226;m lấn cả Tr&#225;i đất - Ảnh 4.
+![](/img/photo-3-15318394995291496556230.jpg)
 
-Chỉ trong 130 năm, những chiếc ống h&#250;t d&#249;ng một lần đ&#227; ra đời v&#224; x&#226;m lấn cả Tr&#225;i đất - Ảnh 4.
+![](/img/6-15318404015151873727072.jpg)
 
 Những món đồ nhựa đầu tiên do John Wesley Hyatt sáng chế vào 1870
 
@@ -64,7 +70,9 @@ Bạn thấy đó, sau năm 1945, ống hút giấy đã vô cùng phổ biến.
 
 Vì thế, đến thập niên 60, ống hút nhựa ra đời là chuyện không thể tránh khỏi! Hàng loạt tập đoàn lớn lại đua nhau sản xuất, biến ống hút nhựa ngày càng rẻ và bền hơn ống hút giấy.
 
-Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất - Ảnh 5.
+Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất.
+
+![](/img/congtycophannhuathucphamstd73t82j3f-15318406780521896298061.jpg)
 
 Ông David Rhodes, hiện đang là một nhà sản xuất ống hút giấy, nhận xét: "Ống hút nhựa tốt hơn, rẻ hơn và không bị mủn theo thời gian. Và vào thời điểm đó, không ai ngờ được hậu quả kinh khủng của ống hút nhựa đối với môi trường trong tương lai".
 
@@ -78,7 +86,11 @@ Tình trạng hiện nay
 
 Vì vậy, nhiều cá nhân, tổ chức, chính phủ... đã kêu gọi ngừng xả rác nhựa hay thậm chí cấm sử dụng 1 số vật dụng nhựa như ống hút.
 
-Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất - Ảnh 6.
+![](/img/photo-4-1531839499532812947904.jpg)
+
+_Nhựa rất khó phân hủy, vì thế các vật như ống hút nhựa dùng 1 lần sẽ ở lại rất lâu trong môi trường_
+
+Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất
 
 Nhựa rất khó phân hủy, vì thế các vật như ống hút nhựa dùng 1 lần sẽ ở lại rất lâu trong môi trường
 
@@ -86,32 +98,32 @@ Chuỗi cà phê Starbucks lên kế hoạch đến năm 2020 sẽ không dùng 
 
 Đầu tháng 7/2018, thành phố Seattle của Mỹ đã cấm sử dụng ống hút nhựa. Nhiều nơi khác trên thế giới đã có các hành động tương tự để cứu nguy phần nào cho môi trường. Ví dụ như vào tháng 4/2018, nước Anh đã dự định sẽ cấm tiệt tăm bông, ống hút nhựa!
 
-Chỉ trong 130 năm, những chiếc ống h&#250;t d&#249;ng một lần đ&#227; ra đời v&#224; x&#226;m lấn cả Tr&#225;i đất - Ảnh 7.
+![](/img/lost-bird-ong-hut-co-giai-phap-bao-ve-moi-truong-1-15318408912161312227384.jpg)
 
-Chỉ trong 130 năm, những chiếc ống h&#250;t d&#249;ng một lần đ&#227; ra đời v&#224; x&#226;m lấn cả Tr&#225;i đất - Ảnh 7.
+![](/img/ly-do-tai-sao-ban-nen-han-che-dung-ong-hut-nhua-43-6862-1531840923367174847530.jpg)
 
 Thế nhưng, vì sao ống hút nhựa vẫn được sản xuất rộng khắp - mặc cho nhiều lời kêu gọi chuyển sang ống hút dùng nhiều lần hay làm từ nguyên liệu thân thiện hơn?
 
 Một quản lí của công ty sản xuất ống hút giấy Aardvark Straws cho biết: "Ống hút giấy sẽ tốn kém hơn ống hút nhựa 1 cent để sản xuất (khoảng 230 VNĐ). Với những tập đoàn lớn, sản xuất hàng loạt, điều đó có nghĩa là mất đi hàng trăm triệu đô la. Tuy nhiên, nếu cứ bất chấp thì cái giá phải trả cho môi trường sẽ còn kinh khủng hơn thế".
 
-Những cột mốc liên quan đến ống hút nhựa
+**_Những cột mốc liên quan đến ống hút nhựa_**
 
-1870 – Sản phẩm nhựa ra đời
+**_1870 – Sản phẩm nhựa ra đời_**
 
-1888 - Ống hút giấy ra đời, chưa thể uốn cong
+**_1888 - Ống hút giấy ra đời, chưa thể uốn cong_**
 
-1930 - Ống hút giấy đã có thể uốn cong, giúp ích cho các bệnh nhân
+**_1930 - Ống hút giấy đã có thể uốn cong, giúp ích cho các bệnh nhân_**
 
-Từ sau 1945 – Nền công nghiệp nhựa gia dụng giá rẻ bùng nổ. Ống hút nhựa ra đời
+**_Từ sau 1945 – Nền công nghiệp nhựa gia dụng giá rẻ bùng nổ. Ống hút nhựa ra đời_**
 
-1950 – Thế giới sản xuất 1,5 triệu tấn nhựa
+**_1950 – Thế giới sản xuất 1,5 triệu tấn nhựa_**
 
-2015 – Thế giới sản xuất 322 triệu tấn nhựa
+**_2015 – Thế giới sản xuất 322 triệu tấn nhựa_**
 
-2018 – Cuộc chiến rác thải nhựa vẫn còn tiếp tục
+**_2018 – Cuộc chiến rác thải nhựa vẫn còn tiếp tục_**
 
-2050 – Dự đoán trọng lượng nhựa sẽ nặng hơn tổng trọng lượng cá trên đại dương
+**_2050 – Dự đoán trọng lượng nhựa sẽ nặng hơn tổng trọng lượng cá trên đại dương_**
 
-Không ai ngờ, một vật dụng nhỏ bé lại trở nên phổ biến quá nhanh, và để lại hậu quả dai dẳng cho môi trường đến thế!
+**_Không ai ngờ, một vật dụng nhỏ bé lại trở nên phổ biến quá nhanh, và để lại hậu quả dai dẳng cho môi trường đến thế!_**
 
 Nguồn: National Geographic
