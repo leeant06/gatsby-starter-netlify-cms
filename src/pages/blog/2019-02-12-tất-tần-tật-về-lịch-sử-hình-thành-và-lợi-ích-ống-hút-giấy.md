@@ -20,9 +20,7 @@ Và vì bia được chứa trong những bình lớn nên người Sumer đã d
 
 Chỉ trong 130 năm, những chiếc ống hút dùng một lần đã ra đời và xâm lấn cả Trái đất - Ảnh 2.
 
-![](/img/photo-1-15318394995241097966574.jpg "Quảng cáo trên báo cho ống hút giấy của Stone")
-
-
+![Quảng cáo trên báo cho ống hút giấy của Stone](/img/photo-1-15318394995241097966574.jpg)
 
 Từ đó, suốt mấy ngàn năm, nhân loại đã biết sử dụng nhiều loại ống khác nhau để hút chất lỏng. Nhưng mãi đến cuối thế kỉ 19, một sản phẩm ống hút đại trà mới ra đời.
 
